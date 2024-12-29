@@ -1,6 +1,6 @@
 # XSUS机场官网地址
 
-最新地址：[xsus.wiki](https://xsus.wiki/#/register?code=h7aYbOGy)
+最新地址：[xsus.wiki](https://xsus.wiki/#/register?code=nZgLhDzF)
 
 ## XSUS机场介绍
 
@@ -8,11 +8,8 @@ XSUS机场从2022年3月25日运营至今，最低套餐月付￥8，是一个�
 
 ## XSUS优惠码
 
-七夕快乐，尽享XSUS带来的甜蜜时光！
-
-购买套餐使用优惠码 “七夕快乐” 即可享受20%的优惠！
-
-活动时间：2024年8月8日至2024年8月22日
+限时优惠
+购买套餐使用优惠码 “NEW2025” 即可享受20%的专属折扣！
 
 ## 特色
 
